@@ -26,6 +26,8 @@ https://github.com/user-attachments/assets/d53f9821-d619-4fa1-90b3-7c619a8682ce
 
 它不再是单向模仿人类的冰冷工具，而是能够与人类双向映射、共生共创的智能体系；它不再只能运算结构化数据，更能容纳、解读、贴合人类的直觉、感知、意识与创造力，彻底打通了横亘千年的**科技与人文二元对立鸿沟**，实现二者同源共生、相互赋能、一体发展。
 
+<img width="1600" height="904" alt="Image" src="https://github.com/user-attachments/assets/e33d2c3b-3775-4652-9cad-f3a852e629ff" />
+
 ##### 在 **AI for Science 硬核科技维度**，
 我们以心物一源的同源逻辑，重新审视人类近代以来所有顶尖未解难题：
 
