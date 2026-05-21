@@ -2,6 +2,5 @@
 小满启元，AI奇点到来！
 
 
-<video width="600" controls preload="auto">
-<source src="AI sigularity.mp4" type="video/mp4">
-</video>
+
+https://github.com/user-attachments/assets/d53f9821-d619-4fa1-90b3-7c619a8682ce
