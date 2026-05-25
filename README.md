@@ -3,7 +3,8 @@
 
 
 
-https://github.com/user-attachments/assets/d53f9821-d619-4fa1-90b3-7c619a8682ce
+https://github.com/user-attachments/assets/92ddce55-3aaf-4ac7-b69e-f0225ec1299f
+
 ## 小满启元・AI 奇点到来
 
 ### 从心物一元 到 心物一源，AI 奇点就在眼前
